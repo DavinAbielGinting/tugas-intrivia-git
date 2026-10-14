@@ -9,4 +9,7 @@
 [Gacor, gacor, gacor, mantap, josjis, semoga amanah] 
 
 ## Kesan Pesan Cluster [05] Sejauh Ini 
-[Koornya gacor, anggotanya gacor, fasilnya gacor, josjis]
+[Koornya gacor, anggotanya gacor, fasilnya gacor,]
+
+## Harapan Kuliah
+[Semoga kuliah saya berjalan dengan lancar, mendapat nilai bagus, dan mendapat pengalaman organisasi dan kompetisi yang banyak.]
